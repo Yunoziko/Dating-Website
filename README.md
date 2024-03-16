@@ -1,1 +1,3 @@
-# CODE BY YUNO
+# Hello Qtz
+
+Send To Ur Dear Partner...
